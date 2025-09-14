@@ -8,7 +8,7 @@
 - 👨‍💻 All of my projects are available at [GitHub](https://github.com/GeethaSri09)
 - 🎬 When I'm not coding, I enjoy exploring my creativity through **video editing**
 - 📫 Reach me at **nimmadalageethasri@gmail.com**
-- 📄 Know more about my experience: [Resume](https://drive.google.com/file/d/1hJPjAdreexz2f7VG3UGNseNN_ETKfuYG/view?usp=sharing)
+- 📄 Know more about my experience: [Resume](https://drive.google.com/file/d/1OAINkL6D3N--W1We4TIMIHMcy1hwIHgE/view?usp=sharing)
 - ⚡ Fun fact: **The first-ever computer programmer was a woman – Ada Lovelace!**
 
 ---
